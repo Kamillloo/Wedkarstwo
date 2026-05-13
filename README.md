@@ -1,1 +1,17 @@
-# Wedkarstwo
+#l;j
+ol
+oi
+l
+il
+yhu
+ku
+uy
+ktu
+uk
+tuk
+uk
+tuk
+utk
+tu
+ktu
+tuk
