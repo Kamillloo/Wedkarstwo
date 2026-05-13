@@ -1,1 +1,1 @@
-tun tung tung
+wierzba ucho
